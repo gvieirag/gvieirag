@@ -1,6 +1,6 @@
 ### Hi there 👋
 
--🐱‍👤 I’m currently learning PENTEST.
+-🥷🏾 I’m currently learning PENTEST.
 
 <div align="center">
   <a href="https://www.linkedin.com/in/gabriel-v-85678821a/">
